@@ -1,0 +1,1 @@
+https://kinzaali.netlify.com
